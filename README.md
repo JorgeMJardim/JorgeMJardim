@@ -1,7 +1,6 @@
-///JM/AZE//
+//JMJ/AZE/VEDO//
 
-"JorgeMJardim/JorgeMJardim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes."
+"JorgeMJardim/JorgeMJardim is a ✨ special ✨ repository because its `README.md"
 --->
 Seeking knowledge and understanding of various communication guidelines, vectors, and nuances.
 Moderating experiences and business synergies to create a greater positive social impact resulting from storytelling and branding.
