@@ -1,4 +1,4 @@
-//JMJ/AZE/VEDO//
+//JMJ/AZE//
 
 "JorgeMJardim/JorgeMJardim is a ✨ special ✨ repository because its `README.md"
 --->
