@@ -37,7 +37,7 @@ Branding understanding and its impact on Sales.  Honesty rules  my communication
 I am already compassioned by the need of one internal enemy and Nemesis 💆
 
 🙌
-| IX ||-1L| Let us raise Resilience by creating positive Education.
+| IX ||-1L| Let us raise Resilience by creating also Educationzal experiences 
 
 |X|: |0L|, IVIy name is Jorge Jardim and |I| am from Portugal. Currently Living in Madeira Island.
 
