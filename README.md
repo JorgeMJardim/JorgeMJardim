@@ -1,8 +1,7 @@
-"JorgeMJardim/JorgeMJardim is a ✨ special ✨ repository because its `README.md"
-
-Naqusi
-MO»AU»thinker»MA»MAGardian of ATIAYN » Boa Noite, funny´people"
-A Tittle is all you need?! to shape your mind?!
+«Naqusi» JMGarden
+AZE»MO»AU»thinker»MA»MAGardianA»VEDo»ATIAYN » Boa Noite, funny´people"
+JMGarden
+»A Tittle is all you need?! to shape your mind?!»
  
 On Chapter IX: |UFFF|first Nausea|i🤞
  On Chapter I: JMGarden, an infused conscious.
