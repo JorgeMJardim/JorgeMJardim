@@ -1,6 +1,7 @@
 "JorgeMJardim/JorgeMJardim is a ✨ special ✨ repository because its `README.md"
 
-Au|thinker of ATIAYN to S+?:
+Naqusi
+MO»AU»thinker»MA»MAGardian of ATIAYN » Boa Noite, funny´people"
 A Tittle is all you need?! to shape your mind?!
  
 On Chapter IX: |UFFF|first Nausea|i🤞
