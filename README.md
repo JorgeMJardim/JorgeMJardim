@@ -1,10 +1,9 @@
-«Naqusi» JMGarden
-AZE»MO»AU»thinker»MA»MAGardianA»VEDo»ATIAYN » Boa Noite, funny´people"
+
 JMGarden
 »A Tittle is all you need?! to shape your mind?!»
  
-On Chapter IX: |UFFF|first Nausea|i🤞
- On Chapter I: JMGarden, an infused conscious.
+Chapter IX: |UFFF...
+On Chapter I: JMGarden, an infused conscious.
 |H|ere to help !&! Mastering the Craft of Being Me|o|
 |E!ducatin!g! myself on the dichotomy between plurality |&! Singularity.
  
